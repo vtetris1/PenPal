@@ -5,7 +5,7 @@ too lazy to write a full readme
 
 but like
 
-this is team 62518 (i hope, we either this or 62519)
+this is team 62518 
 
 but Hi if you are reading this appreciate you spending your time reading this!
 
